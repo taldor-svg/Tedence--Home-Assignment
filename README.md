@@ -104,14 +104,3 @@ Push your completed work to a **public GitHub repository** and email the link to
 ## Questions?
 
 Email Matan at matan@tedence.com — happy to clarify anything.
-# Tedence--Home-Assignment
-# Tedence--Home-Assignment
-# Tedence--Home-Assignment
-# Tedence--Home-Assignment
-# Tedence--Home-Assignment
-# Tedence--Home-Assignment
-# Tedence--Home-Assignment
-# Tedence--Home-Assignment
-# Tedence--Home-Assignment
-# Tedence--Home-Assignment
-# Tedence--Home-Assignment
